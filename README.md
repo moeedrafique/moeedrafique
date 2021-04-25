@@ -3,7 +3,7 @@ Raheel Siddiqui | TwitterRaheel's LinkdeINRaheel's InstagramRaheel's Instagram
 
 Hi, I'm Raheel Siddiqui, An undergradute Software Engineering student @UIT with Software Development skills 🚀 from Pakistan, currently, I'm Developer Student Club Lead 🙍🏽‍♂️ @googledevelopers, Freelance Software Developer 👨🏽‍💻 @Fiverr, Open Source Contributor 👨🏽‍💼@MERL-UIT with that I'm a Founder of @pytroops community and a Student Memeber 🙍🏽‍♂️ @IEEE. Beside's programming, I enjoy music, traveling, TvShows(Silicon Valley is my favorite show) and programming again.
 
-GIF
+https://media.giphy.com/media/ndIq5ohg1pyfqyVOII/giphy.gif
 
 Talking about Personal Stuffs:
 
